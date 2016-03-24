@@ -1,1 +1,1 @@
-Cindy92.github.io
+Cindy.github.io
